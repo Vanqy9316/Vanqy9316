@@ -1,3 +1,3 @@
-- Hi im Vanqy
+- Hi
 - random DE guy doing MC stuff lately
-- Discord: Ｖａｎｑｙ#9316
+- Discord: Ｖａｎｑｙ
