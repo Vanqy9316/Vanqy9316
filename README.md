@@ -1,3 +1,3 @@
 - Hi
-- random DE guy doing MC stuff lately
+- random DE guy getting hyperfixated on random shit for brief moments
 - Discord: vanqy
